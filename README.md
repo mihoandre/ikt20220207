@@ -3,4 +3,5 @@ ikt
 # github-ról írtam
 # halohalo
 kakfkakfsaksfaksfakfasfsakasf andre
-fdhdfhfdddddddddddddddddddddddddddddddddddddddddddddd
+fdhdfhfddddddddddddddddddddddddddddddddddddddddddddd
+x ez már egy új bejegyzás
