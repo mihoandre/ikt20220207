@@ -3,5 +3,8 @@ ikt
 # github-ról írtam
 # halohalo
 kakfkakfsaksfaksfakfasfsakasf andre
-fdhdfhfddddddddddddddddddddddddddddddddddddddddddddd
-x ez már egy új bejegyzás
+fdhdfhfdddddddddddddddddddddddddddddddddddddddddddd
+# EZ VAGYOK ÉN
+# EGY UJ BEJEGYZÉ
+# helo
+# asd213
